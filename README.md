@@ -31,6 +31,8 @@ Motivation: His primary drive is his love for Elise de la Serre (a Templar) and 
 
 Plot: The plot is set in a fictional history of real-world events and follows the millennia-old struggle between the Assassins, who fight to preserve peace and free will, and the Templars, who desire peace through control.
 The main story is set in Paris during the French Revolution from 1789 to 1794, and follows Assassin Arno Dorian and his efforts to expose the true powers behind the Revolution, while seeking revenge against those responsible for his adoptive father's murder.
-
-
 ```
+
+:trollface: I've always dreamt of playing this game. Now that I have a powerful laptop, I got to play this with all my heart[^1]
+
+[^1]:I teared up when I finally had a chance to play this.
